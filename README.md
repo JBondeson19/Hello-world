@@ -1,8 +1,8 @@
 # Hello-world
 Practice repository
 
-I'm Jammmessss
+I'm James
 
-My favorite color is fluorescent beige
+I'm sensible and enjoy the color purple. 
 
-Yall just jealous cause I'm light-skinned and thicc
+Let's get this bread.
